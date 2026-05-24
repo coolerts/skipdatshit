@@ -1,3 +1,6 @@
 # skipdatshit
 пропуск рекламы для ленивых задниц
-https://github.com/coolerts/skipdatshit/blob/main/Screenshot_6.png?raw=true
+
+![ну ты понял](Screenshot_6.png)
+
+так как все адблоки от ютабчика умерли, мною было принято решение сделать так
